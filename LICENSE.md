@@ -1,4 +1,4 @@
-# 
+# Natif birdeye sniper bot extensions pour Mac OS | Instantané birdeye sniper bot extensions pour PC Windows. Avec ordres au marché et support multi-chaînes — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
